@@ -2,7 +2,7 @@
 
 **About Us**
 
-GKTechSphere is a dynamic freelancing company dedicated to delivering top-notch solutions to clients worldwide. We specialize in a wide range of services, including:
+GK TechSphere's is a dynamic freelancing company dedicated to delivering top-notch solutions to clients worldwide. We specialize in a wide range of services, including:
 
 **Technical Services**
 
