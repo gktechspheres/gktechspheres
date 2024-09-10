@@ -1,4 +1,4 @@
-# GKTechSphere: Your Trusted Freelancing Partner
+# GK TechSphere's: Your Trusted Freelancing Partner
 
 **About Us**
 
